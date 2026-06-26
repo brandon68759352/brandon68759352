@@ -14,4 +14,4 @@ i only let light inspo but if uve been my friend for a long time heavy inspo is 
 
 ok thats all
 
-<img height="180cm" src="https://i.postimg.cc/1Rc0L4XS/images-2026-06-26T104757-449.jpg"/>
+<img height="180cm" src="https://postimg.cc/NLFrXsRC"/>
