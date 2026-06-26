@@ -8,6 +8,8 @@ youre amazing
 
 check strawpage mfor more info about me
 
+i sometimes fall asleep while playing so if i dont reply thats the reason, but illprobably come back after some time
+
 dont copy my ponies inspo is ok but only if u ask if u can inspo
 
 i only let light inspo but if uve been my friend for a long time heavy inspo is ok
