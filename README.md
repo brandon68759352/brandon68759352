@@ -8,6 +8,8 @@ youre amazing
 
 check strawpage mfor more info about me
 
+im a verylonely person uhh pls bmf
+
 i sometimes fall asleep while playing so if i dont reply thats the reason, but illprobably come back after some time
 
 dont copy my ponies inspo is ok but only if u ask if u can inspo
