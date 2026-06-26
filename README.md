@@ -7,6 +7,8 @@ youre cool ok dont forget that
 youre amazing
 
 check strawpage mfor more info about me
+
 dont copy my ponies inspo is ok but only if u ask if u can inspo
+
 i only let light inspo but if uve been my friend for a long time heavy inspo is ok
 ok thats all
