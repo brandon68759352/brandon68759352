@@ -1,4 +1,5 @@
 
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=brandon68759352)
 
 <img height="180cm" src="https://i.postimg.cc/Sx4X6Gkz/1782482156239.png"/>
 
